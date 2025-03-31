@@ -1,4 +1,4 @@
-<img src="https://github-readme-stats.vercel.app/api?username=cmliu&show_icons=false&theme=Default" alt="logo" align="right" width="50%" />
+<img src="https://github-readme-stats.vercel.app/api?username=Mingdian68&show_icons=false&theme=Default" alt="logo" align="right" width="50%" />
 
 🤖 **欢迎来到我的 GitHub 仓库！** 🚀
 
@@ -6,7 +6,7 @@
 
 🎉 感谢你的到访，希望你在这里能找到你需要的东西！
 
-▶️**新人[Youtuber](https://www.youtube.com/@CMLiussss)**，需要您的支持，请务必帮我**点赞**、**关注**、**打开小铃铛**，***十分感谢！！！*** ✅
+▶️**新人[Youtuber](https://www.youtube.com)**，需要您的支持，请务必帮我**点赞**、**关注**、**打开小铃铛**，***十分感谢！！！*** ✅
   
 🎁 **你的支持是我不断前进的动力！** 💖
 
@@ -19,8 +19,8 @@
 
 ✈️ **自用机场推荐** 🛩️
 
-☁️[*红杏云优质：**中转机场，不限时1T套餐折后45元起！***](https://url.cmliussss.com/hx) *五折专属优惠码*: **CMLiussss**
+☁️[*红杏云优质：**中转机场，不限时1T套餐折后45元起！***](https://www.youtube.com) *五折专属优惠码*: **Mission.zero**
 
-👑[*69云**中转机场**：6.9元-100G/月！**每日签到免费送流量**不限时套餐！*](https://url.cmliussss.com/69yun) [**脚本签到无限白嫖教程**](https://www.youtube.com/watch?v=W_wfv238eQw&t=317s)
+👑[*69云**中转机场**：6.9元-100G/月！**每日签到免费送流量**不限时套餐！*](https://www.youtube.com) [**脚本签到无限白嫖教程**](https://www.youtube.com)
 
-✅[*一分机场：**直连机场**便宜大碗，最低2元100G，全解锁，顶级大厂亚马逊节点无视晚高峰*](https://url.cmliussss.com/yifen)
+✅[*一分机场：**直连机场**便宜大碗，最低2元100G，全解锁，顶级大厂亚马逊节点无视晚高峰*](https://www.youtube.com)
