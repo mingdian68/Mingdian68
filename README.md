@@ -16,11 +16,3 @@
 - **TRC20:** `TDizmMPgy7cVUr5GsagkNGxyg2rJgf4FNf`
 
 </details> 
-
-✈️ **自用机场推荐** 🛩️
-
-☁️[*红杏云优质：**中转机场，不限时1T套餐折后45元起！***](https://www.youtube.com) *五折专属优惠码*: **Mission.zero**
-
-👑[*69云**中转机场**：6.9元-100G/月！**每日签到免费送流量**不限时套餐！*](https://www.youtube.com) [**脚本签到无限白嫖教程**](https://www.youtube.com)
-
-✅[*一分机场：**直连机场**便宜大碗，最低2元100G，全解锁，顶级大厂亚马逊节点无视晚高峰*](https://www.youtube.com)
