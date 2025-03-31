@@ -1,4 +1,4 @@
-<img src="https://github-readme-stats.vercel.app/api?username=Mingdian68&show_icons=false&theme=Default" alt="logo" align="right" width="75%" />
+<img src="https://github-readme-stats.vercel.app/api?username=Mingdian68&show_icons=false&theme=Default" alt="logo" align="right" width="45%" />
 
 🤖 **欢迎来到我的 GitHub 仓库！** 🚀
 
